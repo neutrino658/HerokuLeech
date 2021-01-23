@@ -1,5 +1,5 @@
-# Help and Support [Admin](https://telegram.dog/MaxxRider)
-# working example group [Leech Here](https://telegram.dog/joinchat/OV5y_FarWaGaNYUIYr6J9w)
+# Help and Support [Admin](https://telegram.dog/)
+# working example group [Leech Here](https://telegram.dog/)
 
 # Telegram Torrent Leecher 🔥🤖
 
